@@ -1,9 +1,9 @@
 ### Work
 
+- Founder at **HeartBank®**
 - Instructor at **Silicon Wat University**
 - Game Creator at **THonly™ Metaverse**
 - Organic Farmer at **Nhia Kou Orchard**
-- Founder at **HeartBank®**
 
 ### Education
 

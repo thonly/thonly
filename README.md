@@ -12,4 +12,4 @@
 - **Doctor of Philosophy** ([in progress](mailto:thonly@hawaii.edu))
 
 #### &rarr; [My Business Card](https://me.thonly.org)
-#### &rarr; [Book FREE Consultation](https://calendar.thonly.org)
+#### &rarr; [Book FREE Consultation](https://calendly.com/thonly/consultation)

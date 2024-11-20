@@ -1,9 +1,9 @@
 ### Work
 
 - **Founder** at [HeartBank®](https://heartbank.org)
-- **Instructor** at [Silicon Wat University](https://siliconwat.com)
+- **Engineer** at [Silicon Wat University](https://siliconwat.com)
 - **Game Creator** at [THonly™ Metaverse](https://thonly.net)
-- **Organic Farmer** at [333 Orchards](https://333.eco)
+- **Organic Farmer** at [333 Exchange](https://333.eco)
 
 ### Education
 

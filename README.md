@@ -7,6 +7,7 @@
 
 ### Education
 
+- **Tipitaka Scholarship**
 - **Bachelor of Arts** in [Economics](mailto:thonly@ucla.edu)
 - **Master of Science** in [Software Engineering](mailto:thonly@csu.fullerton.edu)
 - **Doctor of Philosophy** ([in progress](mailto:thonly@hawaii.edu))

@@ -1,9 +1,9 @@
 ### Work
 
 - **Founder** at [HeartBank®](https://heartbank.org)
-- **Engineer** at [Silicon Wat, Inc](https://siliconwat.com)
+- **Engineer** at [333, Inc](https://333.eco)
+- **Zero Hero** at [Silicon Wat ℠](https://siliconwat.com)
 - **Creator** at [THonly™](https://thonly.net)
-- **Zero Hero** at [333℠](https://333.eco)
 
 ### Education
 

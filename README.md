@@ -1,7 +1,7 @@
 ### Work
 
 - **Founder** at [HeartBank®](https://heartbank.org)
-- **Engineer** at [333, Inc](https://333.eco)
+- **Engineer** at [333 Inc](https://333.eco)
 - **Zero Hero** at [Silicon Wat ℠](https://siliconwat.com)
 - **Creator** at [THonly™](https://thonly.net)
 

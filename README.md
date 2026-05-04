@@ -2,7 +2,7 @@
 
 - **Founder** at [HeartBank®](https://heartbank.org)
 - **Engineer** at [Factory 333](https://333.eco)
-- **Zero Hero** at [Silicon Wat ℠](https://siliconwat.com)
+- **Transcriber** at [Silicon Wat ℠](https://siliconwat.com)
 - **Creator** at [THonly™](https://thonly.net)
 
 ### Education

@@ -1,13 +1,13 @@
 ### Work
 
-- **Founder** at [HeartBank®](https://heartbank.org)
+- **Founder** at [HeartBank®](https://heartbank.net)
 - **Engineer** at [Factory 333](https://333.eco)
-- **Transcriber** at [Silicon Wat ℠](https://siliconwat.com)
-- **Creator** at [THonly™](https://thonly.net)
+- **Researcher** at [Silicon Wat ℠](https://siliconwat.dev)
+- **Creator** at [THonly™](https://thonly.com)
 
 ### Education
 
-- **Scholarship** in [Tipitaka](mailto:thonly@heartbank.ceo)
+- **Transcriber Scholarship** in [Tipitaka](mailto:thonly@siliconwat.dev)
 - **Bachelor of Arts** in [Economics](mailto:thonly@ucla.edu)
 - **Master of Science** in [Software Engineering](mailto:thonly@csu.fullerton.edu)
 - **Doctor of Philosophy** ([in progress](mailto:thonly@hawaii.edu))
